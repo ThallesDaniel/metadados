@@ -4,4 +4,4 @@ O código se trata de um sistema desktop que coleta metadados de uma imagem, tai
 
 UTILIZEI INFORMAÇÕES FICTÍCIAS QUE NÃO OFERECEM PROBLEMAS A TERCEIROS!!!
 
-Veja maisa no meu Linkedln: 
+Veja maisa no meu Linkedln: https://www.linkedin.com/posts/thalles-daniel-66a604229_metadados-seguranaexadigital-privacidade-activity-7186426399992266752-LQ5T?utm_source=share&utm_medium=member_desktop
